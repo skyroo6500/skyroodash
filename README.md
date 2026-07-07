@@ -1,3 +1,3 @@
 # skyroodash
 Skyroo Discord Testing Dash
-This is Public but 🤡 eont abuse it
+This is Public but 🤡 don't abuse it
